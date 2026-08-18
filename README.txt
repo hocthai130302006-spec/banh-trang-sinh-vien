@@ -1,0 +1,1 @@
+Bánh Tráng Sinh Viên — V10 Visual Collection. Giữ nguyên V9 và bổ sung 4 ảnh BT6-BT9, bộ ảnh fresh-mood, gallery 09 frames, cùng các visual mới ở Trang chủ, Về chúng tôi và Đặt hàng. Giá: Me 15.000đ; Bò sa tế 10.000đ; Muối 10.000đ.
